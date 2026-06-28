@@ -1,2 +1,2 @@
 # BoopAKA
-nintendo archive :3
+Welcome to my repo <3
